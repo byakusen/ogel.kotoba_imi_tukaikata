@@ -1,0 +1,1 @@
+# ogel.kotoba_imi_tukaikata
